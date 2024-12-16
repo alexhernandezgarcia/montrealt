@@ -1,0 +1,7 @@
+- [Casa del Popolo](https://casadelpopolo.com/en/events/casa-del-popolo)
+- [La Sala Rossa](https://casadelpopolo.com/en/events/la-sala-rossa)
+- [La Sotterenea](https://casadelpopolo.com/en/events/la-sotterenea)
+- [P'tit Ours](https://casadelpopolo.com/en/events/ptit-ours)
+- [Quai des Brumes](https://quaidesbrumes.ca/#prochainsevenements)
+- [Bar Let Ritz PDB](https://www.barleritzpdb.com/)
+- [L'Esco](https://www.facebook.com/lescomontreal/)
